@@ -14,10 +14,15 @@ What do you get when you use Picsart Gold?
 The MOD version  unlocked Picsart Gold. You just need to download the app and use it for free. As a Gold member, you get some of the following benefits:
 
 Unlock all paid filters.
+
 Unlock 3000+ stickers, backgrounds, frames, Front…
+
 Unlock all paid editing tools.
+
 No advertising.
-How to login?
+
+# How to login?
+
 Picsart MOD APK does not require login to use.
 
 However, you need to log in (with Email or Facebook) to use some community features.
