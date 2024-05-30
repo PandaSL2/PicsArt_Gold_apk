@@ -11,6 +11,7 @@ https://drive.google.com/file/d/1e8JspoQyvEvntWU4OpGBkhrMINPOLHnM/view?usp=shari
 Gold Features Unlocked
 
 What do you get when you use Picsart Gold?
+
 The MOD version  unlocked Picsart Gold. You just need to download the app and use it for free. As a Gold member, you get some of the following benefits:
 
 Unlock all paid filters.
